@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... art, and other things in that nature.
 - 🌱 I’m currently learning ... A bunch a things that have to do  with highschool.
 - 💞️ I’m looking to collaborate on ... really nothing
-- 📫 How to reach me ... at eli.1762@vusd.us
+- 📫 How to reach me ... at 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
